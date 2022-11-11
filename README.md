@@ -12,9 +12,6 @@ My name is 謝沅瓏.
 arthur
 123
 My name is Walker.
-<<<<<<< HEAD
 [14mdum6jajaja](https://youtu.be/dQw4w9WgXcQ)
-=======
 
->>>>>>> aefc98a (testing000)
 wahaha
