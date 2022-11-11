@@ -6,6 +6,4 @@ My name is Max.
 sdfjlksdfjd
 Noop, my name isn't Max.
 `WOW`
-jkewhfknwekfnkc
-wlkenvlkwref
-
+wanna cry
