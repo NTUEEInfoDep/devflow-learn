@@ -13,4 +13,3 @@ My name is 謝沅瓏.
 123
 My name is Walker.
 ORNVWMEVNEW;CMOURN;
-eowijfowjefocjw
